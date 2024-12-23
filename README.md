@@ -1,2 +1,2 @@
 
-# Bonjour ! :snail:
+# Bonjour ! 🐌 🐸
